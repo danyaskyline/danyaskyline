@@ -1,1 +1,1 @@
-<img width="736" height="1540" alt="swordPIZDATIY" src="https://github.com/user-attachments/assets/cfd92133-eb25-475f-9ce2-d80088a70f93" />
+<img width="711" height="1151" alt="swordPIZDATIY" src="https://github.com/user-attachments/assets/b0e40561-5d95-4edd-a17e-60ee968e6d63" />
